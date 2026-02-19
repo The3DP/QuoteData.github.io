@@ -4,9 +4,15 @@
 d73928430@gmail.com
 
 
-## Daily quote for February 18th, 2026 (*Ecclesiastes 3:1-8, NKJV*): 
-> ⍞ **""Never give in, never give in, never, never, never,
+##### Daily quote for February 18th, 2026 (*Albert Einstein*): 
+> ⍞ **"Life is like riding a bicycle.
+> To keep your balance, you must keep moving"**
+
+
+##### Daily quote for February 18th, 2026 (*Winston Churchill*): 
+> ⍞ **"Never give in, never give in, never, never, never,
 >  never—in nothing, great or small, large or petty. Never
->  give in except to convictions of honour and good sense""**
+>  give in except to convictions of honour and good sense"**
 
 Made by [The3DP](https://github.com/The3DP)
+This is a [GitHub Pages](https://docs.github.com/en/pages) site
