@@ -1,7 +1,12 @@
 # QuoteData
 ##### This repository is still currently a work in progress; improvements are expected to be applied Saturday
 ##### Thank you for your patience! If you have any hanging questions, then please contact the email below:
-d73928430@gmail.com
+*d73928430@gmail.com*
+
+
+##### Daily quote for February 19th, 2026 (*Steve Jobs*): 
+> ⍞ **"The only way to do great
+> work is to love what you do"**
 
 
 ##### Daily quote for February 19th, 2026 (*Albert Einstein*): 
