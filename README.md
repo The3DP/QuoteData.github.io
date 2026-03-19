@@ -1,7 +1,12 @@
 # QuoteData
-##### This repository is still currently a work in progress!
-##### Thank you for your patience! If you have any hanging questions, then please contact the email below:
+##### This repository may have a few daily quotes missing!
+##### If you have any hanging questions, then please contact the email below:
 *d73928430@gmail.com*
+---
+
+##### Daily quote for March 19th, 2026 (*Nate Saint*): 
+> ⍞ **"I would rather die now than to live
+>  a life of oblivious ease in so sick a world"**
 
 
 ##### Daily quote for March 3rd, 2026 (*C.S. Lewis*): 
