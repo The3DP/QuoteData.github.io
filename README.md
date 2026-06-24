@@ -1,8 +1,12 @@
 # QuoteData
-##### This repository may have a few daily quotes missing!
+##### This repository may unintentionally have a few daily quotes missing!
 ##### If you have any hanging questions, then please contact the email below:
 *d73928430@gmail.com*
 ---
+
+##### Daily quote for March 27th, 2026 (*Elisabeth Elliot*):
+> ⍞ **"Faith does not eliminate questions.
+> But faith knows where to take them"**
 
 ##### Daily quote for March 27th, 2026 (*J. R. R. Tolkien*):
 > ⍞ **"All that is gold does not glitter,
