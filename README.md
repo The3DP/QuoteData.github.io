@@ -4,6 +4,10 @@
 *d73928430@gmail.com*
 ---
 
+##### Daily quote for July 1st, 2026 (*C. S. Lewis*):
+> ⍞ **"Christ died for you individually just as much
+> as if you'd been the only man in the world."**
+
 ##### Daily quote for March 27th, 2026 (*Elisabeth Elliot*):
 > ⍞ **"Faith does not eliminate questions.
 > But faith knows where to take them"**
