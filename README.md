@@ -6,7 +6,7 @@
 
 ##### Daily quote for July 2nd, 2026 (*Rick Warren*):
 > ⍞ **"You were made by God and for
-> God. Until you understand that,
+> God, and until you understand that,
 > life will never make sense."**
 
 ##### Daily quote for July 1st, 2026 (*C. S. Lewis*):
