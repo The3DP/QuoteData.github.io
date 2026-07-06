@@ -4,9 +4,9 @@
 *d73928430@gmail.com*
 ---  
 
-##### Daily quote for July 6th, 2026 (*Neal Maxwell*):
+##### Daily quote for July 6th, 2026 (*Neal A. Maxwell*):
 > ⍞ **"Faith in God includes
-> faith in his timing"**
+> faith in His timing"**
 
 ##### Daily quote for July 2nd, 2026 (*Rick Warren*):
 > ⍞ **"You were made by God and for
