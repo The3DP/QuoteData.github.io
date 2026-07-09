@@ -4,6 +4,11 @@
 *d73928430@gmail.com*
 ---  
 
+##### Daily quote for July 9th, 2026 (*Ps. John Hagee*):
+> ⍞ **"Nothing is impossible to those that
+> belive and call according to the
+> purposs of God."**
+
 ##### Daily quote for July 6th, 2026 (*Neal A. Maxwell*):
 > ⍞ **"Faith in God includes
 > faith in His timing."**
