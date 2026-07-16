@@ -4,6 +4,11 @@
 *d73928430@gmail.com*
 ---  
 
+##### Daily quote for July 16th, 2026 (*Charles Spurgeon*):
+> ⍞ **"To trust God in the light is nothing,
+> but to trust him in the dark.
+> That is faith A Joy Fueled Journey."**
+
 ##### Daily quote for July 9th, 2026 (*Ps. John Hagee*):
 > ⍞ **"Nothing is impossible to those that
 > belive and call according to the
